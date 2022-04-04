@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @BuendiaNSASrvcs
+- 👀 I’m interested in building a Notary Signing Agent team.
+- 🌱 I’m currently learning about being a Notary Signing Agent Signing Service.
+- 💞️ I’m looking to collaborate on residential, commerical, and out of office seller/buyer real estate transactions. 
+- 📫 How to reach me lawanda@buendiansasrvcs.com or by phone at (731) 324-3589.
+- 😊 Our website is https://buendiansasrvcs.com/.
+- 👀 Our Notary Branch website is https://buendianotarysrvcs.com/.
